@@ -1,10 +1,8 @@
-- 👋 Olá, me chamo Luan mas conhecido como @merakixzz
-- 👀 Estou interessado em viver a vida sem ninguem enchendo o saco
-- 🌱 Atualmente estou cursando o ensino médio e aprendendo coisas novas
-- 💞️ Procuro colaborar no que eu quiser e njo que for bom
-- 📫 Como entrar em contato comigo? Me procure no instagram @stormxrq
-- 😄 Pronomes: Ele/Dele
-- ⚡ Curiosidade: Eu sou meio lelé da cabeça, zou com tudo, sou persistente no que faço
+- 👋 Olá, me chamo Luan mas conhecido como menino tracking
+- 👀 Estou interessado em dinheiro
+- 📫 Como entrar em contato comigo? Nao me procure.
+- 😄 Pronomes: tracking pra sempre
+- ⚡ Curiosidade: Eu sou menor tracking do odio quentao da bala turca
 
 <!---
 merakixzz/merakixzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
